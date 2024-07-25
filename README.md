@@ -1,10 +1,10 @@
+## Hello! I'm AlexJD very pleased<br/> to meet you Thank you for viewing the profile 🫡<br/>
+
+Studying TI and improving every day<br>
+
 ## Olá! Eu sou o AlexJD muito prazer<br/> Agradeço por ver o perfil 🫡<br/>
 
 Estudando TI e melhorando a cada dia<br>
-
-
-
-
 
 ## Tecnologias que eu uso no meu dia OBS:Vou aprender mais linguagens
 
