@@ -1,6 +1,3 @@
-## Hello! I'm AlexJD very pleased<br/> to meet you Thank you for viewing the profile 🫡<br/>
-
-Studying TI and improving every day<br>
 
 ## Olá! Eu sou o AlexJD muito prazer<br/> Agradeço por ver o perfil 🫡<br/>
 
