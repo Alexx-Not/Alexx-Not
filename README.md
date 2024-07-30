@@ -1,5 +1,5 @@
 
-## Olá! Eu sou o AlexJD muito prazer<br/> Agradeço por ver o perfil 🫡<br/>
+## Olá! Eu sou o AlexJD muito prazer<br/> Agradeço por ver o perfil 😄<br/>
 
 Estudando TI e melhorando a cada dia<br>
 
